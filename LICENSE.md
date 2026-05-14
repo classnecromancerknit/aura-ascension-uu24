@@ -1,4 +1,4 @@
-#  
+#  Experience aura ascension like never before with advanced Scripts for aura ascension, the #1 Script. Includes anti-ban and instant win for unbeatable
 
 
 
